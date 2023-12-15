@@ -2,4 +2,4 @@
 
 Мне 25 лет
 
-![Я](https://vk.com/snady19?z=photo119991095_457256159%2Falbum119991095_0%2Frev)
+![Я](https://github.com/NadyaBurnos/about-me/blob/master/C61D8E69-B939-4096-B7A4-A23E40B5E125.jpg)
